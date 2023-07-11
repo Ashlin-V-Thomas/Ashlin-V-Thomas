@@ -4,4 +4,4 @@
  - Interested in Mathematical Physics.
  - You can reach me on
      - email : ashlinv.thomas@niser.ac.in
-     - instagram : [_____.ashlin._____](https://www.instagram.com/_____.ashlin._____/)
+     - instagram : [ashlin](https://www.instagram.com/_____.ashlin._____/)
